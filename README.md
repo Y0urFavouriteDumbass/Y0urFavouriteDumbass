@@ -14,8 +14,9 @@
 
 ︵‿︵‿︵‿︵‿︵
 1.ᴀʙᴏᴜᴛ ᴍᴇ! 🌟
--
--
+- im a gril...girl😶‍🌫️...(wow shooking) 
+- i'm antysocial and i have really bad anxiety (idk how to start Comvecarion srry) (you can always got to me and c+h or int i don't bite (often/j) 
+- i will ad more some day 👅
 -
 -
 ︵‿︵‿︵‿︵‿︵
