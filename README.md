@@ -19,8 +19,7 @@
 
 
 <img width="472" height="270" alt="young-neil-scott-pilgrim" src="https://github.com/user-attachments/assets/05b72c2b-2a68-44f5-80d1-5bb04227f957" />
-
-2. °|•~⧎ ᴛʜɪɴɢs ɪᴍ ɪɴᴛᴇʀᴇsᴛᴇᴅ ɪɴ/ғᴀɴᴅᴏᴍ ɪ ᴀᴍ ɪᴍ ɪɴ:⧎
+2.°|•~⧎ ᴛʜɪɴɢs ɪᴍ ɪɴᴛᴇʀᴇsᴛᴇᴅ ɪɴ/ғᴀɴᴅᴏᴍ ɪ ᴀᴍ ɪᴍ ɪɴ:⧎
 - ɢᴀᴍɪɴɢ 
 - ᴡᴀᴛᴄʜɪɴɢ ᴀɴɪᴍᴇ/ᴍᴏᴠɪᴇs
 - ᴡᴀsᴛɪɴɢ ᴛɪᴍᴇ
@@ -30,7 +29,7 @@
 - ʙᴛᴅ (ᴛʜᴇ ᴡʜᴏʟᴇ sᴀɢᴀ ɪɢ) 
 - ʀᴀɴғʀᴇɴ
 - sᴄᴏᴛᴛ ᴘɪʟɢʀɪᴍ (ʏᴇᴀʜ ᴅᴇғɴᴛɪʟ ɴᴏᴛ (ɪᴛ's ɴᴏᴛ ʟɪᴋᴇ ɪ ʜᴀᴠᴇ ᴀ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴏɴ ɢɪᴛ ᴀʟʟ ᴏᴠᴇʀ ɪᴛ (ʏᴏᴜɴɢ ɴᴇɪʟ)
-    
+-ᴏᴋᴇɢᴏᴍ   
 
 <img width="311" height="254" alt="young-neil-neil-nordegraf_1" src="https://github.com/user-attachments/assets/f5b9161e-6db4-4c6c-bfba-8f5b96828da5" />
 
