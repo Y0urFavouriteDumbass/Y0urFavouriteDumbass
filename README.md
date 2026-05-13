@@ -6,6 +6,8 @@
 ★∻∹⋰welcome ᴛᴏ ᴍʏ ᴘᴀɢᴇ!(wip trust im working on it ;u )
 
 <img width="230" height="200" alt="small-neil-young-neil" src="https://github.com/user-attachments/assets/55d58548-95ea-4619-a215-cd08271f9c7e" />
+
+
 ︵‿︵‿︵‿︵‿︵
 1.ᴀʙᴏᴜᴛ ᴍᴇ! 
 -
@@ -13,6 +15,8 @@
 -
 -
 ︵‿︵‿︵‿︵‿︵
+
+
 
 <img width="472" height="270" alt="young-neil-scott-pilgrim" src="https://github.com/user-attachments/assets/05b72c2b-2a68-44f5-80d1-5bb04227f957" />
 
