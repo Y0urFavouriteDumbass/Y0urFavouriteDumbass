@@ -31,7 +31,9 @@
 - ʙᴛᴅ (ᴛʜᴇ ᴡʜᴏʟᴇ sᴀɢᴀ ɪɢ) 
 - ʀᴀɴғʀᴇɴ
 - sᴄᴏᴛᴛ ᴘɪʟɢʀɪᴍ (ʏᴇᴀʜ ᴅᴇғɴᴛɪʟ ɴᴏᴛ (ɪᴛ's ɴᴏᴛ ʟɪᴋᴇ ɪ ʜᴀᴠᴇ ᴀ ᴄʜᴀʀᴀᴄᴛᴇʀ ᴏɴ ɢɪᴛ ᴀʟʟ ᴏᴠᴇʀ ɪᴛ (ʏᴏᴜɴɢ ɴᴇɪʟ)
+
 -ᴏᴋᴇɢᴏᴍ   
+-ᴏᴛʜᴇʀ ғᴀɴᴅᴏᴍs
 
 <img width="311" height="254" alt="young-neil-neil-nordegraf_1" src="https://github.com/user-attachments/assets/f5b9161e-6db4-4c6c-bfba-8f5b96828da5" />
 
