@@ -5,7 +5,7 @@
   1.ᴀʙᴏᴜᴛ ᴍᴇ  .   2.ɪɴᴛʀᴇsᴛ/ғᴀɴᴅᴏᴍ   .
 
   
-  [ATA](https://y0urfavdumbdumb.atabook.org/)
+  [ATA still making it](https://y0urfavdumbdumb.atabook.org/)
 
 ★∻∹⋰welcome ᴛᴏ ᴍʏ ᴘᴀɢᴇ!(wip trust im working on it ;u )
 
