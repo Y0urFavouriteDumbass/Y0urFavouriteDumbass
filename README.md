@@ -16,8 +16,8 @@
 1.ᴀʙᴏᴜᴛ ᴍᴇ! 🌟
 - im a gril...girl😶‍🌫️...(wow shooking) 
 - i'm antysocial and i have really bad anxiety (idk how to start Comvecarion srry) (you can always got to me and c+h or int i don't bite (often/j) 
-- i will add more about me some day 👅
--
+- im not from england soo i make spelling mistakes (english is my SECOND language +i have dyslexia [im sorry])
+- im from poland!1!!!
 -
 ︵‿︵‿︵‿︵‿︵
 
