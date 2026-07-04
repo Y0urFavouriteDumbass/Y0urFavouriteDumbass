@@ -1,7 +1,7 @@
 
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:
  
- ![visitors](https://komarev.com/ghpvc/?username=Y0urFavouriteDumbass&color=dc143c)
+ ![visitors](https://komarev.com/ghpvc/?username=Y0urFavouriteDumbass&color=95CAED)
  
   
 〖  1.ᴀʙᴏᴜᴛ ᴍᴇ  .   2.ɪɴᴛʀᴇsᴛ/ғᴀɴᴅᴏᴍ〗   .
