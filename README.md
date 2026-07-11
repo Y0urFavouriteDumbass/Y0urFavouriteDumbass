@@ -1,4 +1,4 @@
-(im going to rmk my read.me soon!)
+//im going to rmk my read.me soon!)
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:
  
  ![visitors](https://komarev.com/ghpvc/?username=Y0urFavouriteDumbass&color=95CAED)
