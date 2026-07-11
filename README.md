@@ -7,7 +7,7 @@
 〖  1.ᴀʙᴏᴜᴛ ᴍᴇ  .   2.ɪɴᴛʀᴇsᴛ/ғᴀɴᴅᴏᴍ〗   .
 
   
-  [ATA please sign](https://y0urfavdumbdumb.atabook.org/)
+  [ATA please sign/i dont remember my password so i dont wrtie back](https://y0urfavdumbdumb.atabook.org/)
 
 ★∻∹⋰welcome ᴛᴏ ᴍʏ ᴘᴀɢᴇ!(wip trust im working on it ;u )
 
